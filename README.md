@@ -1,1 +1,0 @@
-# girls-who-code-website
